@@ -8,5 +8,5 @@ So i need some user to send feedback to me then i can fix bug.
 
 **Support Me**
 You can support us at 👍 
-[Kiriha Donet](https://kirihadeveloperhouse.github.io/Kiriha-Donet/) -> https://kirihadeveloperhouse.github.io/Kiriha-Donet/
+[Kiriha Donet](https://kirihadeveloperhouse.github.io/Kiriha-Donet/) -> https://kirihadeveloperhouse.github.io/Kiriha-Donet/\n
 [Paypal](https://www.paypal.com/paypalme/siripabusaba) -> https://www.paypal.com/paypalme/siripabusaba
